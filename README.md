@@ -26,7 +26,7 @@ Como estudante do Bootcamp intensivo de Quality Assurance da **TripleTen**, atue
 
 ### 🤝 Vamos conversar?
 
-*   **LinkedIn:** [www.linkedin.com/in/nelsi-monteiro)
+*  **LinkedIn:**[Nelsi Monteiro](http:linkedin.com)
 *   **E-mail:** nelsimonteiro@gmail.com
 *   **Localização:** Mogadouro, Portugal (Disponível para oportunidades Remotas / Híbridas)
 
